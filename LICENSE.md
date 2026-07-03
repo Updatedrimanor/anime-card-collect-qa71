@@ -1,4 +1,4 @@
-#  
+#  rare Script for anime card collection is the best anime card collection Script, featuring speed and aimbot. Safe and powerful for all your needs.
 
 
 
